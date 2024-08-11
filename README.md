@@ -1,0 +1,1 @@
+Quantitative finance related studies
